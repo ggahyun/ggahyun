@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 김혜성
 - 📫 How to reach me 전화와 문자
 - 😄 Pronouns: 잘모르겠네요..
-- ⚡ Fun fact: 음?
+- ⚡ Fun fact: 
 
 
 <!---
